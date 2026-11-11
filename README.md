@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Thammarat Thamma.
+# 👋 Hi, I'm Peerapat Bencha.
 
 <div align="center">
 
